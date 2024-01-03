@@ -1,1 +1,1 @@
-### IN GOD WE TRUST
+### stan loona and satan luvs u ;-;
